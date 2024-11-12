@@ -1,2 +1,2 @@
 Integrantes del grupo:
-Catalina Massarini, Federico Allende, Juan Guzzardi, Pablo Cejas, Tomas Corzo y Francisco Daurat.
+Franco Emiliano Lombroni, Santiago O Neell Rivas Suarez, Felipe Bruno, Jeroniumo Gaston Romano perez y Francisco Daurat.
